@@ -23,7 +23,7 @@
 
 **🚀 立即体验：**
 
-*   **✨ 桔子小铺 - ChatGPT Plus 代充推广链接 (推荐，更稳定，有质保)：[https://juzixp.com/buy/64](https://juzixp.com/buy/64)**
+*   **✨ 桔子小铺 - ChatGPT Plus 代充推广链接 (推荐，更稳定，有质保)：[https://shop.muooy.com/buy/64](https://shop.muooy.com/buy/64)**
 *   **🌐 备用 ChatGPT Plus 代充官网 (多种方案供选)：[https://gpt.3ms.run](https://gpt.3ms.run)**
 
 ---
@@ -49,7 +49,7 @@
 
 此方案适合绝大多数国内用户，无需折腾复杂的虚拟信用卡或担心支付地区限制。
 
-1.  **访问推荐代充平台：** 点击我们的推广链接：**[https://juzixp.com/buy/64](https://juzixp.com/buy/64)**
+1.  **访问推荐代充平台：** 点击我们的推广链接：**[https://shop.muooy.com/buy/64](https://shop.muooy.com/buy/64)**
 2.  **选择充值套餐：** 根据您的需求，选择对应的 **ChatGPT Plus 月度或年度代充服务**。
 3.  **提交信息并支付：** 平台通常会要求您提供 **ChatGPT 账号的登录邮箱**（无需密码 [14]），或由客服引导您通过官方升级链接完成代充。支持 **支付宝、微信支付**，操作流程极致简单。 [11, 25]
 4.  **等待开通：** 支付成功后，平台会在**极短时间内**为您完成 **ChatGPT Plus** 的升级。
